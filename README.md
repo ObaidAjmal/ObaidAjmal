@@ -1,14 +1,5 @@
                                                                            I'm Obaid Ajmal
 
-
-
-                                                
-
-                                        ![animation_500_kxa883sd](https://github.com/user-attachments/assets/55a64faa-d854-4c08-b15b-48c4b8750983)
-
-
-  
-
 About Me! 👩‍💻
 I am a passionate and experienced Research Assistant, AI&ML Engineer and data scientist, dedicated to providing insightful and impactful solutions through data analysis and machine learning. With a strong background in statistics and programming, I specialize in extracting meaningful insights from complex datasets\n. 📈🔍
 👀👩‍💻
