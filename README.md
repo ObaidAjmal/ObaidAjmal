@@ -45,13 +45,9 @@ Certifications! 🏆
 Contact Me 📧🤝
 I am available for Artficial Intelligence , data science projects and collaborations. If you have any inquiries or would like to discuss potential opportunities, please feel free to reach out to me:
 
-Twitter: Twitter Badge
+Email:obakhan60373@gmail.com
 
-LinkedIn: LinkedIn Badge
-
-Email: Gmail Badge
-
-WhatsApp: +923098960890 (Click to Chat) WhatsApp Badge
+WhatsApp: +923098960890
 
 Let's harness the power of data together and create meaningful solutions! 🌟
 
