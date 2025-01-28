@@ -1,10 +1,7 @@
-Freelance Data Scientist 📊🧪
-
-
 I'm Obaid Ajmal 
 
 About Me! 👩‍💻
-I am a passionate and experienced Research Assistant, AI&ML Engineer and data scientist, dedicated to providing insightful and impactful solutions through data analysis and machine learning. With a strong background in statistics and programming, I specialize in extracting meaningful insights from complex datasets. 📈🔍
+I am a passionate and experienced Research Assistant, AI&ML Engineer and data scientist, dedicated to providing insightful and impactful solutions through data analysis and machine learning. With a strong background in statistics and programming, I specialize in extracting meaningful insights from complex datasets\n. 📈🔍
 👀👩‍💻
 🎓 Education: Every Day I learn Something.
 🔭 Current Projects: I am actively working on various Research machine learning projects to enhance my skills and gain practical experience.
