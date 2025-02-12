@@ -45,7 +45,7 @@ Certifications! 🏆
 Contact Me 📧🤝
 I am available for Artficial Intelligence , data science projects and collaborations. If you have any inquiries or would like to discuss potential opportunities, please feel free to reach out to me:
 
-Email:obakhan60373@gmail.com
+Email:obaid.ajmal316@gmail.com
 
 WhatsApp: +923098960890
 
